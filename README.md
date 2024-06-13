@@ -1,7 +1,6 @@
 ![View-Admin-Panel](https://github.com/mamunislam531/classic-it-codecanyon-image/assets/156643257/88c4bb07-9daf-408d-8407-a15bbac5b676)
 ![View-App](https://github.com/mamunislam531/classic-it-codecanyon-image/assets/156643257/c97375d0-8644-4d6c-b7ec-0e3d0d1616f5)
 ![2](https://github.com/mamunislam531/classic-it-codecanyon-image/assets/156643257/55898b8d-9e34-46e2-8c70-9666da934ef4)
-![1](https://github.com/mamunislam531/classic-it-codecanyon-image/assets/156643257/e947d650-c14d-4979-b393-04084a9a89c3)
 ![13](https://github.com/mamunislam531/classic-it-codecanyon-image/assets/156643257/b6d6ea69-ba65-4f6c-94aa-7f2a85ea68a2)
 ![12](https://github.com/mamunislam531/classic-it-codecanyon-image/assets/156643257/c5cc5431-6c10-4a3d-8b27-76846b627b8d)
 ![11](https://github.com/mamunislam531/classic-it-codecanyon-image/assets/156643257/d2b460bb-1482-4411-83b9-850479d76f30)
