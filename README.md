@@ -4,6 +4,7 @@
 
 ![download](https://github.com/user-attachments/assets/cefcddaa-936d-44bb-8cfb-5e29442c4b6c)
 
+![PAYEMNT](https://github.com/user-attachments/assets/0971eb2a-e910-4158-a558-f70727aceaa9)
 
 
 
