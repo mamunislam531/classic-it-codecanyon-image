@@ -1,6 +1,7 @@
 
 ---------------- FoodFinder ------------------------
 ![see_demo](https://github.com/user-attachments/assets/618cc62a-7bc4-4692-b77b-b050054a7400)
+![doc](https://github.com/user-attachments/assets/2fa0e05f-a936-4a27-8dd0-6897ae998952)
 
 ![download](https://github.com/user-attachments/assets/cefcddaa-936d-44bb-8cfb-5e29442c4b6c)
  ![color](https://github.com/user-attachments/assets/986618bc-734c-4bf9-9ab2-48adcc91a804)
